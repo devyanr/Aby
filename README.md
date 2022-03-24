@@ -1,2 +1,0 @@
-# Aby
-halo namaku Aby
